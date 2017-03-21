@@ -8,4 +8,4 @@ GIT!!!
 
 GIT WHO???
 
-GIT this over with!!!
+GIT on with the assignment!
